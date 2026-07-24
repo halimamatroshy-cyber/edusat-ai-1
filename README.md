@@ -1,1 +1,0 @@
-# edusat-ai-1
